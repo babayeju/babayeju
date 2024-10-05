@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @babayeju
-- 🌱 I’m currently learning: A B.E. in Computer Science @ Stanford University 
+- 🌱 I’m currently learning: A B.E. in Electrical Engineering and Computer Science @ Stanford University 
 - 📫 How to reach me: christibabayeju@gmail.com || babayeju@stanford.edu 
 - 😄 Pronouns: She/Her 
 - ⚡ Fun fact: I have a cane carso named Blue. 
